@@ -1,1 +1,0 @@
-# RESITIC18_FontEnd_T2
